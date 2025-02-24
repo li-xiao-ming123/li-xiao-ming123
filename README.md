@@ -1,4 +1,4 @@
-## Hi there 👋
+## 🫵🫵🫵别看了就是你！这就是个小号，你可以叉掉了
 
 <!--
 **li-xiao-ming123/li-xiao-ming123** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
